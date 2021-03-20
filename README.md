@@ -1,1 +1,1 @@
-# -GETS
+# open:rkey.webnode.ru
